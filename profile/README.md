@@ -1,3 +1,3 @@
-# B-FLEXION
+<img src="images/logo-white.svg" width="370" height="110">
 
 B-FLEXION is a private, entrepreneurial investment firm, partnering with sophisticated capital to meet the shared goal of delivering exceptional value over the generations, while also contributing positively to society.  B-FLEXION has offices across Europe and in the United States.
